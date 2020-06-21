@@ -12,3 +12,5 @@ As Cal said to Cere Junda:
 
 > Our mistakes... Are in the past. And it's all of our responsibility 
 > and it's about what we do next that's important. You taught me that, Cere.
+
+<img src="https://cdn-0.scatteredquotes.com/wp-content/uploads/2019/12/Star-Wars-Jedi-Fallen-Order-Quotes-7.jpg" />
